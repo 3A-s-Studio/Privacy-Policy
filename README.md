@@ -1,6 +1,8 @@
 # Privacy Policy for Wallpaper App
 
 **Effective Date**: November 6, 2025
+
+
 **Last Updated**: November 6, 2025
 
 ## Introduction
